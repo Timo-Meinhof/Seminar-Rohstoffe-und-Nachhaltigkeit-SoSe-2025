@@ -1,0 +1,1 @@
+# Seminar-Rohstoffe-und-Nachhaltigkeit-SoSe-2025
